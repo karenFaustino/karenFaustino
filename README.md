@@ -1,4 +1,4 @@
-## Sure! Here's how you would say it in English:
+
 
 "Hello, I am Karen Ellen. How are you?"
  👋
