@@ -1,4 +1,7 @@
-## Hi there 👋
+## Sure! Here's how you would say it in English:
+
+"Hello, I am Karen Ellen. How are you?"
+ 👋
 
 <!--
 **karenFaustino/karenFaustino** is a ✨ _special_ ✨ repository because its `README.md` (this file) appears on your GitHub profile.
